@@ -1,6 +1,6 @@
 i dont know how this works im sorry pls deal with this terrible layout
 
-hello !  my name is aza, i go by she/they ^^ masc terms are also fine. im a minor, im also from the philippines yes
+hello !  my name is aza or shion, use what you want ^^ i go by she/they ^^ masc terms are also fine. im a minor, im also from the philippines yes
 
 im a really shy person but i will open up by time T__T so dont be afraid to interact with me first! my dni is just basic dni criteria :P
 
