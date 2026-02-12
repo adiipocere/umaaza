@@ -8,4 +8,4 @@ im into umamusume, persona, girls band cry, bocchi the rock, limbus company, pjs
 
 i like to cosplay and draw
 
-discord - sirifesta
+discord - halfwritten.
